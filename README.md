@@ -14,7 +14,7 @@
 
 **Curso:** 4K3  
 
-**Profesoras del curso:**
+**Profesores del curso:**
 - Covaro, Laura — Adjunto  
 - Massano, Cecilia — Auxiliar de Trabajos Prácticos  
 - Garnero, Constanza — Auxiliar de Trabajos Prácticos  
